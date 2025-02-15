@@ -1,2 +1,1 @@
-# bipinchor
-ghada chor daka
+
